@@ -1,0 +1,1 @@
+silent is diamond gold
